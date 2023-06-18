@@ -1,4 +1,4 @@
-# lasokar.github.io/Idle-Breakout
+# https://lasokar.github.io/Idle-Breakout
 ### An alterative link to play Idle Breakout unblocked
 Idle Breakout modernizes the Atari classic Game. Classic breakout for the Atari was a superb game. This modern idle game, however, takes the genre to the next level. During the game, you have to click the colored blocks to earn cash. Each block you click earns you a set fee - this can be upgraded. You can then use the cash to purchase breakout balls and upgrades so that you can smash the blocks faster.
 For being an idle game that doesn’t take much effort on the players’ part, there is a surprising amount of strategy that goes into Idle Breakout. While there are many different strategies, we recommend that you don’t try and hoard your money too much. Start off with buying a few of the basic balls, and then work your way up to the plasma balls, the second cheapest option. Spending your money quickly tends to be efficient, and when it is financially feasible to buy the next upgrade then go for it.
